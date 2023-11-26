@@ -1,1 +1,1 @@
-# St.-Joseph-Cathedral-Parish
+# St. Joseph Cathedral Parish
